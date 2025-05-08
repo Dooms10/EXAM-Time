@@ -1,1 +1,5 @@
 # EXAM-Time
+I have upcoming exams on 10 may {academics} so I will be updating what i will be studying and just right after the exams I am going to again start my studies for placements. I literally hate it because I am actually unable to give time for placement studies agar projects bnane hai toh v bhi pending chalra hai bhumika you need to focus a lot on your life to grow up,that's why jisko karna hota hai vo 3{teen}mahine mei mehnat karke sab karleta hai chahe vo projects ho DSA ya fir full stack development.
+I dont know that whether this repository will be deleted by me later on or it will stay but i vented out my feelings here.
+see after exams which is final exams I am talking about I have to do the internship thing that's why it is mandatory for me to develop that's it Bhumika keep working and showing up for urself forget that your third class college friends exist what they do or achieve is none of your fkinn business..samjhi?
+now go study for your fucking academics. and bich bich mei pls i beg you study for ur placement shit atleast complete the projects only to show something in ur resume.
